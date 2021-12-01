@@ -12,7 +12,7 @@
 
 蔡捷倫：
 
-許宸華：rrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrrb
+許宸華：不會弄拉QQ
 
 蔡佳蓁：
 
